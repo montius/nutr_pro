@@ -1,1 +1,1 @@
-miejsce na stronę
+miejsce na stronę dla Diany
